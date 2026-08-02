@@ -1,4 +1,4 @@
 # for-badges
 
 to attain them easily
-2nd attempt
+2nd attempts
